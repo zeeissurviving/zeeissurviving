@@ -12,6 +12,9 @@ Anyways, here's a jiuyuan comic I made!!
 
 **MINI FAQ TOO:**
 
+**Can I talk to u?**
+Offtab, afk, drawing, doing comm work- nothing should stop thou from talking. But pls w2i. Thas all~
+
 **Favourite ships?**
 Come the Scum (I can name seven different shen yuan combos that equally entertain me other than scumcum, that man is so... shippable), Songxuexiao (and anything in between, songxue, songxiao, xuexiao, u name it)
 
