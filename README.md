@@ -1,6 +1,6 @@
 🎧ྀི♪⋆. L O A D I N G 。。。
 
-【 SYSTEM MESSAGE: CONGRATULATIONS, CONGRATULATIONS, CONGRATULATIONS！！！Important things must be said three times. 】
+【 SYSTEM MESSAGE: *CONGRATULATIONS, CONGRATULATIONS, CONGRATULATIONS！！！Important things must be said three times.* 】
 
 【 SYSTEM MESSAGE: **MINI FAQ:** 】
 
@@ -33,7 +33,7 @@
 
 🎧ྀི♪⋆. L O A D I N G 『New Tab』
 
-【 SYSTEM MESSAGE: *“These are all my favourite things～” 】
+【 SYSTEM MESSAGE: *“These are all my favourite things～”* 】
 
 **Fav IPs!**:
 SVSSS, 2HA, JWQS, POTO
