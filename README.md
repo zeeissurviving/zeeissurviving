@@ -2,7 +2,7 @@
 
 【 SYSTEM MESSAGE: *CONGRATULATIONS, CONGRATULATIONS, CONGRATULATIONS！！！Important things must be said three times. Please have fun with the script, Peerless Cucumber!* 】
 
-<img width="1378" height="2039" alt="1000056230" src="https://github.com/user-attachments/assets/34e72a1d-43c5-47a4-8652-f46beda59593" />
+<img width="1200" height="1920" alt="1000056467" src="https://github.com/user-attachments/assets/e589b28b-cbe6-46d3-b3e8-32a3d681f960" />
 
 
 【 SYSTEM MESSAGE: **MINI INFO SPLAT:** 】
