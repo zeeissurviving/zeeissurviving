@@ -1,11 +1,11 @@
 🎧ྀི♪⋆. L O A D I N G 。。。
 
-【 SYSTEM MESSAGE: *CONGRATULATIONS, CONGRATULATIONS, CONGRATULATIONS！！！Important things must be said three times. Please have fun with the script, Peerless Cucumber!* 】
+【 SYSTEM MESSAGE: CONGRATULATIONS, CONGRATULATIONS, CONGRATULATIONS！！！Important things must be said three times. Please have fun with the script, Peerless Cucumber! 】
 
 <img width="1200" height="1920" alt="1000056467" src="https://github.com/user-attachments/assets/e589b28b-cbe6-46d3-b3e8-32a3d681f960" />
 
 
-【 SYSTEM MESSAGE: **MINI INFO SPLAT:** 】
+【 SYSTEM MESSAGE: **MINI INFO SPLAT** 】
 
  **Can I talk to u?** 
 - Offtab, afk, drawing, doing comm work- nothing should stop thou from talking. But pls w2i. Thas all~
