@@ -5,13 +5,10 @@
 <img width="1378" height="2039" alt="1000056230" src="https://github.com/user-attachments/assets/34e72a1d-43c5-47a4-8652-f46beda59593" />
 
 
-【 SYSTEM MESSAGE: **MINI FAQ:** 】
+【 SYSTEM MESSAGE: **MINI INFO SPLAT:** 】
 
  **Can I talk to u?** 
 - Offtab, afk, drawing, doing comm work- nothing should stop thou from talking. But pls w2i. Thas all~
-
- **Can ships interact with you?** 
-- Sure, not picky with my ships either. Anything can be a ship. I love rp and esp ship rp (always never gonna take it to lemon lvls of rp no, no...)♪(´ε｀*)
 
  **Cuddle good?** 
 - Yes and yes.
