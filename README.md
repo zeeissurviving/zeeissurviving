@@ -7,14 +7,11 @@
 
 【 SYSTEM MESSAGE: **MINI INFO SPLAT** 】
 
- **Can I talk to u?** 
-- Offtab, afk, drawing, doing comm work- nothing should stop thou from talking. But pls w2i. Thas all~
+
+Offtab, afk, drawing, doing comm work- nothing should stop thou from talking. Pls w2i! Thas all~ Love interacting!
 
  **Cuddle good?** 
 - Yes and yes.
-
- **Kiss good?** 
-- Gotta kiss the homies gn ofc
 
  **Under... 18.... interacting outside of pt w u...?** 
 - I'm ur ancestor. Only very limited contact! So sorry. This is non-negotiable.
