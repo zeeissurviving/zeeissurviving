@@ -23,3 +23,10 @@ Offtab, afk, drawing, doing comm work- nothing should stop thou from talking. Pl
 SVSSS, 2HA, JWQS, POTO
 
 **I also love the IPs :** How Dare You!? (成何体统 - prince duan when I come get u), Semantic Error, A Journey to love (c-drama), TGCF, MDZS, Misvil, Epic the Musical (or most Musical Theatre, just hit me with one and I'll add it to my watch later playlist if I haven't seen it), Pearl Boy, Ignite the Dawn (Pearl Boy), Alien Stage, Moral Orel, My Senior Brother Has a Hole in His Head, Danganronpa V3 and HSR (Anaxa and his waist).
+
+【 SYSTEM MESSAGE : Some more art! 】
+<img width="1450" height="1800" alt="1000056466" src="https://github.com/user-attachments/assets/628bd65f-1f0e-4f54-9ffd-299731c96c34" />
+
+<img width="1378" height="2039" alt="1000056448" src="https://github.com/user-attachments/assets/4b352e5f-d102-45fc-aed8-48cb489baa7a" />
+
+<img width="1536" height="2048" alt="1000057985" src="https://github.com/user-attachments/assets/89c2780e-6db8-40b6-bfd6-eaf4b48b4709" />
